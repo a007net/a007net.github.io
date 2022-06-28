@@ -1,5 +1,5 @@
 芭提雅导航永久地址   芭提雅导航.com 
-芭提雅导航最新地址：https://batiyadh.xyz  https://www.batiya.men 
+芭提雅导航最新地址： https://batiya2022.monster https://batiyadh.xyz  https://www.batiya.men 
 防屏蔽地址①：https://www.batiya.run https://www.batiya.men   https://batiyadh.buzz https://batiyadh.monster 动动手指将本。地址发布页收藏起来，永不迷路。
 
 
